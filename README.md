@@ -4,7 +4,7 @@
 [![rank](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73/aqolbi488/u-suzy-one-line-office-joke-laugh-off-f574ac73/rank.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73/leaderboard?utm_source=github&utm_medium=readme&utm_campaign=u-suzy-one-line-office-joke-laugh-off-f574ac73)
 [![reward](https://make.fun/badge/u-suzy-one-line-office-joke-laugh-off-f574ac73/aqolbi488/u-suzy-one-line-office-joke-laugh-off-f574ac73/reward.svg)](https://make.fun/bounty/u-suzy-one-line-office-joke-laugh-off-f574ac73?utm_source=github&utm_medium=readme&utm_campaign=u-suzy-one-line-office-joke-laugh-off-f574ac73)
 
-I asked HR for work-life balance; they gave me a second laptop so work follows me home in stereo.
+The office fridge says label your food. Someone labeled theirs 'evidence.'
 
 ## Run it
 
